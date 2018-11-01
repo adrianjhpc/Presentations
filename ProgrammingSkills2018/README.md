@@ -1,3 +1,1 @@
 # Programming Skills Recorded Lectures
-
-
